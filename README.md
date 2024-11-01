@@ -1,1 +1,0 @@
-# Barteska_pva1
